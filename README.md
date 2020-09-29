@@ -13,7 +13,9 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love to watch movies and listen music.
 
+#### Spotify 
 
+(https://open.spotify.com/user/mw6oca6h7mhr0pslq73vk1xda)
 
 
 
